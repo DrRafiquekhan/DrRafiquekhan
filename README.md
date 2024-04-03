@@ -2,7 +2,7 @@
 - 👀 I’m interested in Post-Idea Fellowship Programme in sanitary pads  
 - 🌱 I’m currently learning reaserch in public health
 - 💞️ I’m looking to collaborate on Post-Idea Fellowship Programme
-- 📫 How to reach me Linkedin
+- 📫 How to reach me drrafiquekhan@gmail.com
 
 
 <!---
